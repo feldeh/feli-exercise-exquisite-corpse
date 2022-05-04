@@ -10,3 +10,5 @@ En arrivant a l'aéroport de Las Vegas Samson rencontra René, En voyant Samson 
 
 Quand soudain, le 6 Mousquetaire, John, Felicien, Guilaume, Naim et Quentin arrivent en chantant My Heart Will Go On. 
 ![6Mousquetaire](https://media4.giphy.com/media/3og0IBOC4A5ock7dAc/giphy.gif?cid=ecf05e47rquksq8erycirei0colpl4xcj28vm18dztd3x9cu&rid=giphy.gif&ct=g)
+
+Arrivé à LA, il tombe par hasard à l'aéroport sur Natacha, sa copine du primaire. Elle lui annonce être une amie intime de Céline DIon, et lui proposer de la suivre en backstage pour le concert. Samson est aux anges. Malheuresement, le lendemain, un test PCR positif l'interdit l'accès au stade. Il rentre chez lui après quinze jours de quarantaine dans un hôtel miteux.
